@@ -4,3 +4,6 @@
 - [Ram 3500 6.7L Cummins Diesel (High Output) *Heavy Diesel Mechanic Review* | 3 Reasons Its the BEST](https://youtu.be/tKFgf2rwvlM)
 - [RAM 2500 Cummins DIESEL vs GAS (6.4 Hemi) | Which Engine Should you Buy? *Diesel Mechanic Explains*](https://youtu.be/vvytE7PI_Ac)
 - [5th Gen Ram Cummins problems. 2019+ Ram Cummins](https://youtu.be/vU-O3t_rkvU)
+- [How to prevent RAM Cummins 6.7L engine failure due to stock grid heater](https://youtu.be/1suWBNtjpqE)
+- [RAM 2500 Cummins 6.7L Diesel Engine Review **Heavy Duty Mechanic** | The BEST Towing Engine??](https://youtu.be/oiFVn3esMhg)
+- [Daily driving a Ram 2500 cummins, pros and cons](https://youtu.be/AFeqS1tmR0g)
