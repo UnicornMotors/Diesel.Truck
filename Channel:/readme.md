@@ -5,3 +5,4 @@ Favorite:
 index:
 - https://www.youtube.com/@pddieselpower
   - tags: Racing
+- https://www.youtube.com/@everydaydiesel
