@@ -3,3 +3,4 @@
 - [Please DO NOT Buy a Dodge (Unless It Has This Engine)](https://youtu.be/caRQ1Ugt2_8)
 - [Ram 3500 6.7L Cummins Diesel (High Output) *Heavy Diesel Mechanic Review* | 3 Reasons Its the BEST](https://youtu.be/tKFgf2rwvlM)
 - [RAM 2500 Cummins DIESEL vs GAS (6.4 Hemi) | Which Engine Should you Buy? *Diesel Mechanic Explains*](https://youtu.be/vvytE7PI_Ac)
+- [5th Gen Ram Cummins problems. 2019+ Ram Cummins](https://youtu.be/vU-O3t_rkvU)
