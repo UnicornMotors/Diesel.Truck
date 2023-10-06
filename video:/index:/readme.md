@@ -1,0 +1,5 @@
+- [RAM 2500 Cummins 6.7L Diesel Engine ** Heavy Mechanic Review** | TOP 3 ISSUES](https://youtu.be/1PAi-BEFs3Y)
+- [BEFORE vs AFTER 6.7 Cummins Delete 5th Gen](https://youtu.be/JTbPC_c1yos)
+- [Please DO NOT Buy a Dodge (Unless It Has This Engine)](https://youtu.be/caRQ1Ugt2_8)
+- [Ram 3500 6.7L Cummins Diesel (High Output) *Heavy Diesel Mechanic Review* | 3 Reasons Its the BEST](https://youtu.be/tKFgf2rwvlM)
+- [RAM 2500 Cummins DIESEL vs GAS (6.4 Hemi) | Which Engine Should you Buy? *Diesel Mechanic Explains*](https://youtu.be/vvytE7PI_Ac)
