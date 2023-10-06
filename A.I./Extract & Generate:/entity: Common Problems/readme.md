@@ -1,0 +1,1 @@
+- [6.7 CUMMINS Grid Heater Delete and Intake Horn INSTALL](https://youtu.be/YmNiPepijOo)
